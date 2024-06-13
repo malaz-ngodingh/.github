@@ -1,2 +1,2 @@
-# malaz-ngodingh
-Github profile
+[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
+> Malaz gweh🧢
